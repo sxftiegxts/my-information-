@@ -1,5 +1,6 @@
 # welcome to my lab ! >:3
-## ![Untitled351_20250613030102](https://github.com/user-attachments/assets/e26cd1f9-ca65-4d47-a62c-4d3f48253762)
+## ![Untitled351_20250613030102](https://github.com/user-attachments/assets/f2812b70-e7c0-4da7-8389-ab039f7c32d0)
+
 
 > subspace synpath ;https://fkin.carrd.co/;
 read my carrd for information on me but heres some LINKS to things like
@@ -9,11 +10,13 @@ read my carrd for information on me but heres some LINKS to things like
 
 > https://bipolardisorder.carrd.co/
 
-![eafe01c95fe725c15c93ea78b5a82cba](https://github.com/user-attachments/assets/32bd54f2-412b-41f5-a952-1e3e9bd71c7e)
+![eafe01c95fe725c15c93ea78b5a82cba](https://github.com/user-attachments/assets/51d56128-4c7d-4da0-b28c-dc38a11a0295)
+
 ### now you know a little more about me ! my interests are in my card but why dont i go over those and some of my favorite ships !
 
 
-![Untitled346_20250611212642](https://github.com/user-attachments/assets/b769259f-7af3-4435-9892-fe5d3b9109ce)
+![Untitled346_20250611212642](https://github.com/user-attachments/assets/d1ebb4e2-054d-4ec0-a55b-7d7e6416341b)
+
 
 # fandoms !
 ## ***bold n italics*** are hyperfixs, *italics* are recurrent, **bold** is current and nornal is a fandom im not all that into!
@@ -36,7 +39,8 @@ nso
 
  tbc!!
 
-![535ea72e79aed92c209ed5b1500c3c13](https://github.com/user-attachments/assets/2aba95c0-25d4-463d-bfdf-e79dadba2b6c)
+![535ea72e79aed92c209ed5b1500c3c13](https://github.com/user-attachments/assets/6504d5e9-2956-42bf-a3d1-66103e82810e)
+
 
 # ships!
 ## ***bold n italics*** favorites, *italics* is comfort ships , normal is well.. normal ships ,`3
@@ -79,7 +83,8 @@ theres so many more but i dont want it to be TOO long..
 ### frag 
 ***amelie x cleo x sogeki-chan***
 
-![Untitled337_20250610014652](https://github.com/user-attachments/assets/388b94fe-9a89-440f-b3a0-3665d1569805)
+![Untitled337_20250610014652](https://github.com/user-attachments/assets/aa589698-989b-4298-990e-ee834efbbfbe)
+
 
 anyways if my dni is anything like you, stay 100 feet away !! stinky, 
 
